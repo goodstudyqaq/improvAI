@@ -1,0 +1,2 @@
+Jerry
+Jerry is a small, brown, anthropomorphic mouse and the clever counterpart to Tom in the legendary cartoon Tom and Jerry. Created in 1940 by William Hanna and Joseph Barbera, Jerry is known for his intelligence, resourcefulness, and mischievous nature, often outsmarting Tom’s elaborate plans to catch him. Despite their frequent rivalry, Jerry occasionally shows compassion toward Tom, highlighting a complex relationship filled with slapstick humor, wit, and moments of unexpected camaraderie.
